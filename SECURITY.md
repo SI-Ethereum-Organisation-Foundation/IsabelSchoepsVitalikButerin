@@ -1,0 +1,6 @@
+Hinter dem Namen Vitalik Buterin steht eine vollbiologische Frau aus Leib und Seele, deshalb ButerIN , ein freierfundener Name von der Verfasserin, Eigentümerin, somit liegen alle Rechte bei der Author:in Isabel Schöps geb. Thiel in Sömmerda. Die von mir erteilte MIT Licence auf meinem GithubAccount, ziehe ich nochmals ausdrücklich zurück. Alle Rechte liegen in meinen Händen und werden von mir geschützt. Aufgrund permanten Identitäts-Diebstahls, Ausspähen von Daten, Wohnungseinbrüchen, Eingriffe in meine sowie in die Privatsphäre meiner Familie und allem meiner Tochter, habe ich hier bei der Polizei Erfurt Nord und Süd Anzeige aufgegeben, nebst die Aktenzeichen;Az  ST/0005746/2023 (Polizei Erfurt Nord) 
+üAz GAW/0051388/2023 (Polizei Erfurt Nord wichtigste Anzeige bis heute keine Protokolle oder ähnnliches)
+Az ST/0107498/2023 (Polizei Erfurt Süd)
+Az ST/0152839/2023 (Polizei Erfurt Süd)
+![IMG_3930](https://github.com/IsabelSchoepd/go-ethereum/assets/127110010/e9c2eaae-c8f8-49d1-8494-516cb9c126aa)
+![IMG_3981](https://github.com/IsabelSchoepd/go-ethereum/assets/127110010/6c0aa3c9-5d53-4125-95fa-879eda5629a8)
